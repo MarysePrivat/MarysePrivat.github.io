@@ -1,5 +1,3 @@
-# MarysePrivat.github.io
-página web
 Maryse Privat
 
 aquí vendrá una foto!!
