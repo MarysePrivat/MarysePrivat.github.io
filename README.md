@@ -3,7 +3,8 @@ Maryse Privat
 aquí vendrá una foto!!
 
 Lengua Francesa I
-curso 2017-2018
+
+Curso 2017-2018
 
 Tema 1
 enlace a la página del tema 1
